@@ -1,2 +1,0 @@
-# HowayPhilippines
-Howay Philippines
